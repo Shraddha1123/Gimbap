@@ -1,0 +1,18 @@
+Ingredients:
+
+1 large cucumber,
+Sea or kosher salt,
+3 large eggs,
+Vegetable oil, for greasing the pan,
+6 long strips ham for kimbap ,
+1 medium carrot,
+3 sheets flat odeng fishcake, cut lengthwise into 1/4-inch strips,
+2 teaspoons grain syrup or oligosaccharide syrup,
+1 teaspoon soy sauce,
+1 whole danmuji (pickled radish) or 6 pre-cut long danmuji sticks for kimbap,
+6 long pieces Korean braised burdock root for kimbap,
+3 long strips of artificial crab meat, cut in half lengthwise for a total of 6,
+3 cups cooked short-grain rice (hot),
+1 1/2 tablespoons sesame oil (plus more for brushing),
+1 1/2 tablespoons crushed roasted sesame seeds,
+6 square sheets gim for gimbap,
